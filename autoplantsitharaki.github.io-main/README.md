@@ -1,1 +1,0 @@
-# autoplantsitharaki.github.io
